@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me onlyone1anotherone@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i don't know what I'm doing in here, I'm basically still clueless. i want learning so bad so yeah. other me i like boy.
+- ⚡ Fun fact: i don't know what I'm doing in here, I'm basically still clueless. i want learning so bad so yeah. pretty much dump so yeah. boykisser :3
 
 <!---
 willian-winters/willian-winters is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
